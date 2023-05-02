@@ -1,4 +1,4 @@
-# Ingles_com_a_Gringa 👨‍💻👽🤯
+# Ingles com a Gringa 👨‍💻👽🤯
 ## Curso Inglês com a Gringa - [Inglês com a Gringa](https://inglescomagringaoficial.com.br/ofertaespecial/?gclid=Cj0KCQjw6cKiBhD5ARIsAKXUdyam0XZ2Khy8KB-YVg1Mc3hMRsDbfGq3xoVoBMV4B7b3jimfYvQyAlgaAvAIEALw_wcB&ref=N79107514Y)
 ### 💥Tópicos abordados durante o curso: 💥
 - Introdução
